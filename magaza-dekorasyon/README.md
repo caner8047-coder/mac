@@ -90,3 +90,12 @@ Bu klasörde mağaza dekorasyonu ile ilgili ürün/mağaza linkleri ve kısa öz
 - **Özet:** Wabi Sabi 5'li yuvarlak tablo seti; doğal huş ahşap çerçeveli Japandi duvar dekoru (Huhu865). Minimal, doğal tonlu İskandinav-Japandi stil; mağaza feature wall ve sakin vitrin arka planı için. 45x45, 5 parça, çok renkli.
 - **Not:** ~1.256–1.395 TL bandı (Plus sepette); 4.7 puan, 16 değerlendirme; ~8,3B favori. Tablo kategorisinde en çok ziyaret edilenler arasında (#6).
 
+
+### 11. Yapay Benjamin Starlight ağacı (beyaz-yeşil, 120 cm küre saksılı)
+- **Link:** https://www.trendyol.com/cihan-cicekcilik/yapay-benjamin-starlight-agaci-beyaz-yesil-120-cm-kure-saksili-p-1153995767?boutiqueId=61&merchantId=142262
+- **Marka / satıcı:** Cihan Çiçekçilik
+- **Ürün grubu:** Yapay bitki · Salon dekoru / vitrin yeşili
+- **Kategori:** Ev ve Mobilya → Ev Dekorasyon → Yapay Çiçek
+- **Özet:** Yapay Benjamin Starlight ağacı, beyaz-yeşil alacalı yapraklı; 120 cm, küre saksılı. Bakım gerektirmeyen premium salon bitkisi; mağaza girişi, vitrin ve iç mekân köşe dekoru için. Yükseklik ~101–125 cm, ağaç formunda (saksı rengi siyah varyant).
+- **Not:** ~1.375–1.527 TL bandı; henüz yorum yok. Tahmini kargo ~3 gün.
+
