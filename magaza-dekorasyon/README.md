@@ -37,3 +37,12 @@ Bu klasörde mağaza dekorasyonu ile ilgili ürün/mağaza linkleri ve kısa öz
 - **Özet:** Difenbahya (Dieffenbachia) Tropic Snow — beyaz-krem alacalı yapraklı tropik salon bitkisi. Mağaza/vitrin ve iç mekân yeşil alan dekoru için; bol yapraklı, gösterişli görünüm. İç Mekan Bitkileri kategorisinde en çok satılanlar arasında (#8).
 - **Not:** ~399,90–430 TL bandı; 3.7 puan, 254 değerlendirme; ~9,3B favori.
 
+
+### 5. Deve tabanı (Monstera Deliciosa) ithal orta boy
+- **Link:** https://www.trendyol.com/taha-cicekcilik/deve-tabani-monstera-deliciosa-ithal-orta-boy-p-167317238?boutiqueId=61&merchantId=1268243
+- **Marka / satıcı:** Taha Çiçekcilik / Florya Botanik
+- **Ürün grubu:** İç mekân bitkisi · Canlı bitki / yeşil dekor
+- **Kategori:** Bahçe & Yapı Market → İç Mekan Bitkileri
+- **Özet:** Monstera Deliciosa (deve tabanı), ithal orta boy salon bitkisi. Delikli büyük yapraklı tropik görünüm; mağaza köşesi, vitrin ve iç mekân yeşil alan dekoru için popüler seçim.
+- **Not:** ~319 TL; 3.9 puan, 186 değerlendirme; ~7,8B favori. Tahmini kargo ~3 gün (seçili satıcı).
+
