@@ -99,3 +99,28 @@ Bu klasörde mağaza dekorasyonu ile ilgili ürün/mağaza linkleri ve kısa öz
 - **Özet:** Yapay Benjamin Starlight ağacı, beyaz-yeşil alacalı yapraklı; 120 cm, küre saksılı. Bakım gerektirmeyen premium salon bitkisi; mağaza girişi, vitrin ve iç mekân köşe dekoru için. Yükseklik ~101–125 cm, ağaç formunda (saksı rengi siyah varyant).
 - **Not:** ~1.375–1.527 TL bandı; henüz yorum yok. Tahmini kargo ~3 gün.
 
+
+### 12. Ahşap çerçeveli 3'lü Wabi Sabi koleksiyon tablo (Huhu711)
+- **Link:** https://www.trendyol.com/huhuli/ahsap-cerceveli-3-lu-wabi-sabi-koleksiyon-tablo-seti-salon-duvar-dekoru-huhu711-p-1064374739?boutiqueId=61&merchantId=378282
+- **Marka / satıcı:** HUHULİ
+- **Ürün grubu:** Duvar tablosu · Wabi-sabi salon seti
+- **Kategori:** Ev ve Mobilya → Ev Dekorasyon → Tablo
+- **Özet:** Ahşap çerçeveli 3'lü Wabi Sabi koleksiyon tablo seti (Huhu711). Salon duvar dekoru; siyah çerçeve, cesur sanat teması. Çoklu ebat seçenekleri (20x30 … 50x70). Mağaza feature wall için sade set.
+- **Not:** ~634–815 TL bandı; 4.8 puan, 6 değerlendirme; ~685 favori.
+
+### 13. Ahşap siyah çerçeveli 2 parça set tablo (Huhu53)
+- **Link:** https://www.trendyol.com/huhuli/ahsap-siyah-cerceveli-2-parca-set-tablo-huhu53-p-886175780?boutiqueId=61&merchantId=378282
+- **Marka / satıcı:** HUHULİ
+- **Ürün grubu:** Duvar tablosu · 2'li modern set
+- **Kategori:** Ev ve Mobilya → Ev Dekorasyon → Tablo
+- **Özet:** Ahşap siyah çerçeveli 2 parça set tablo (Huhu53). Modern stil; siyah çerçeve. Ebat seçenekleri 20x30, 30x40, 50x35, 50x70. İkili duvar kompozisyonu için.
+- **Not:** ~593–690 TL bandı; 4.5 puan, 21 değerlendirme; ~1,9B favori.
+
+### 14. Ahşap çerçeveli 3'lü modern tablo (Huhu258)
+- **Link:** https://www.trendyol.com/huhuli/ahsap-cerceveli-3-lu-modern-tablo-huhu258-p-823642595?boutiqueId=61&merchantId=378282
+- **Marka / satıcı:** HUHULİ
+- **Ürün grubu:** Duvar tablosu · 3'lü modern/soyut set
+- **Kategori:** Ev ve Mobilya → Ev Dekorasyon → Tablo
+- **Özet:** Ahşap çerçeveli 3'lü modern tablo (Huhu258). Soyut tema; naturel/pembe ton seçenekleri. Ebat seçenekleri 20x30–50x70. Üçlü modern duvar dizilimi için.
+- **Not:** ~580–695 TL bandı; 4.5 puan, 83 değerlendirme; ~7,6B favori.
+
