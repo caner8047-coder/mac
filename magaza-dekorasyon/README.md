@@ -4,5 +4,27 @@ Bu klasörde mağaza dekorasyonu ile ilgili ürün/mağaza linkleri ve kısa öz
 
 ## Linkler
 
-(Linkler eklendikçe buraya kaydedilecek.)
+### 1. Beton sarkıt avize / kaya model saksı
+- **Link:** https://www.trendyol.com/abacishop/beton-sarkit-avize-dekoratif-beton-gorunumlu-kaya-model-saksi-beton-saksi-fibersaksi-p-1044286724?boutiqueId=61
+- **Marka / satıcı:** abacıshop / BetonEvim
+- **Ürün grubu:** Saksı · Aydınlatma / sarkıt avize (beton dekor)
+- **Kategori:** Bahçe & Yapı Market → Saksı
+- **Özet:** Dekoratif beton görünümlü kaya model saksı; fibersaksı. Başlıkta sarkıt avize olarak da geçiyor. Materyal beton, renk bej, modern stil. Yükseklik ~25–30 cm, genişlik ~50 cm. Mağaza/vitrin dekoru için endüstriyel-modern beton görünüm.
+- **Not:** ~2.375–2.500 TL bandı (Plus sepette).
+
+### 2. Büyük boy silindir beton saksı
+- **Link:** https://www.trendyol.com/kaju-creative/dekoratif-buyuk-boy-beton-saksi-silindir-4-5l-20x18-cm-p-879498337?boutiqueId=61
+- **Marka / satıcı:** Kaju Creative
+- **Ürün grubu:** Saksı · Bitki / yeşil alan dekoru
+- **Kategori:** Bahçe & Yapı Market → Saksı
+- **Özet:** Dekoratif büyük boy silindir beton saksı, ~4–4.5 L, 20x18 cm. Gri, yuvarlak, modern. İç mekân bitki düzenlemesi ve mağaza köşe/yeşil alan dekoru için uygun.
+- **Not:** ~570–600 TL bandı; 4.4 puan, 141 değerlendirme.
+
+### 3. İskandinav duvar çıtası / duvar paneli (10 adet)
+- **Link:** https://www.trendyol.com/exalted-hawk/50cm-x-5-cm-duvar-panelleri-iskandinav-duvar-citasi-kemence-kahverengi-10-adet-p-798858233?boutiqueId=61&v=50%20x%205
+- **Marka / satıcı:** exalted hawk / ekinçak
+- **Ürün grubu:** Duvar dekorasyonu · Duvar paneli / çıtası
+- **Kategori:** Ev ve Mobilya → Ev Dekorasyon → Duvar Dekorasyon Ürünü
+- **Özet:** 50x5 cm İskandinav duvar çıtası panelleri, kemençe kahverengi, 10 adet. Ahşap materyal, İskandinav stil. Duvar lambiri/çıtası görünümü için; mağaza duvar kaplama ve feature wall uygulamalarında kullanılır. Kategoride çok favorilenen ürünlerden.
+- **Not:** ~97,56 TL; 4.1 puan, 893 değerlendirme; ~90,6B favori.
 
