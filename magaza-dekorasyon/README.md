@@ -28,3 +28,12 @@ Bu klasörde mağaza dekorasyonu ile ilgili ürün/mağaza linkleri ve kısa öz
 - **Özet:** 50x5 cm İskandinav duvar çıtası panelleri, kemençe kahverengi, 10 adet. Ahşap materyal, İskandinav stil. Duvar lambiri/çıtası görünümü için; mağaza duvar kaplama ve feature wall uygulamalarında kullanılır. Kategoride çok favorilenen ürünlerden.
 - **Not:** ~97,56 TL; 4.1 puan, 893 değerlendirme; ~90,6B favori.
 
+
+### 4. Difenbahya (Dieffenbachia Tropic Snow)
+- **Link:** https://www.trendyol.com/taha-cicekcilik/difenbahya-dieffenbachia-tropic-snow-p-356080049?boutiqueId=61&merchantId=1120661
+- **Marka / satıcı:** Taha Çiçekcilik / Green EBA Gardens
+- **Ürün grubu:** İç mekân bitkisi · Canlı bitki / yeşil dekor
+- **Kategori:** Bahçe & Yapı Market → İç Mekan Bitkileri
+- **Özet:** Difenbahya (Dieffenbachia) Tropic Snow — beyaz-krem alacalı yapraklı tropik salon bitkisi. Mağaza/vitrin ve iç mekân yeşil alan dekoru için; bol yapraklı, gösterişli görünüm. İç Mekan Bitkileri kategorisinde en çok satılanlar arasında (#8).
+- **Not:** ~399,90–430 TL bandı; 3.7 puan, 254 değerlendirme; ~9,3B favori.
+
