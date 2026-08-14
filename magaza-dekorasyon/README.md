@@ -46,3 +46,12 @@ Bu klasörde mağaza dekorasyonu ile ilgili ürün/mağaza linkleri ve kısa öz
 - **Özet:** Monstera Deliciosa (deve tabanı), ithal orta boy salon bitkisi. Delikli büyük yapraklı tropik görünüm; mağaza köşesi, vitrin ve iç mekân yeşil alan dekoru için popüler seçim.
 - **Not:** ~319 TL; 3.9 puan, 186 değerlendirme; ~7,8B favori. Tahmini kargo ~3 gün (seçili satıcı).
 
+
+### 6. 120 cm yapay benjamin ağacı (küre saksılı)
+- **Link:** https://www.trendyol.com/cihan-cicekcilik/120-cm-yapay-benjamin-agaci-kure-saksili-premium-salon-bitkisi-p-1154137397?boutiqueId=61&merchantId=142262
+- **Marka / satıcı:** Cihan Çiçekçilik
+- **Ürün grubu:** Yapay bitki · Salon dekoru / vitrin yeşili
+- **Kategori:** Ev ve Mobilya → Ev Dekorasyon → Yapay Çiçek
+- **Özet:** Premium 120 cm yapay benjamin ağacı, küre saksılı. Bakım gerektirmeyen yapay salon bitkisi; mağaza girişi, vitrin ve iç mekân köşe dekoru için. Yükseklik ~101–125 cm, ağaç formunda, renk beyaz (saksı/varyant).
+- **Not:** ~1.375–1.527 TL bandı; 5.0 puan (2 değerlendirme); ~424 favori. Tahmini kargo ~3 gün.
+
