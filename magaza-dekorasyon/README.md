@@ -55,3 +55,12 @@ Bu klasörde mağaza dekorasyonu ile ilgili ürün/mağaza linkleri ve kısa öz
 - **Özet:** Premium 120 cm yapay benjamin ağacı, küre saksılı. Bakım gerektirmeyen yapay salon bitkisi; mağaza girişi, vitrin ve iç mekân köşe dekoru için. Yükseklik ~101–125 cm, ağaç formunda, renk beyaz (saksı/varyant).
 - **Not:** ~1.375–1.527 TL bandı; 5.0 puan (2 değerlendirme); ~424 favori. Tahmini kargo ~3 gün.
 
+
+### 7. 170 cm 3 gövdeli yapay palmiye (beyaz küre saksılı)
+- **Link:** https://www.trendyol.com/cihan-cicekcilik/premium-27-33-beyaz-kure-saksili-170-cm-3-govdeli-yapay-palmiye-agaci-p-1149217098?boutiqueId=61&merchantId=142262
+- **Marka / satıcı:** Cihan Çiçekçilik
+- **Ürün grubu:** Yapay bitki · Salon / mağaza ağaç dekoru
+- **Kategori:** Ev ve Mobilya → Ev Dekorasyon → Yapay Çiçek
+- **Özet:** Premium 170 cm, 3 gövdeli yapay palmiye ağacı; 27×33 beyaz küre saksılı. Bakım gerektirmeyen yüksek boy yapay ağaç; mağaza girişi, vitrin ve geniş iç mekân köşe dekoru için. Yükseklik ~151–200 cm, ağaç formunda.
+- **Not:** ~3.437 TL; 4.2 puan, 28 değerlendirme; ~7,2B favori. Tahmini kargo ~3 gün.
+
