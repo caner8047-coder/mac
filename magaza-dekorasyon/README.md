@@ -64,3 +64,12 @@ Bu klasörde mağaza dekorasyonu ile ilgili ürün/mağaza linkleri ve kısa öz
 - **Özet:** Premium 170 cm, 3 gövdeli yapay palmiye ağacı; 27×33 beyaz küre saksılı. Bakım gerektirmeyen yüksek boy yapay ağaç; mağaza girişi, vitrin ve geniş iç mekân köşe dekoru için. Yükseklik ~151–200 cm, ağaç formunda.
 - **Not:** ~3.437 TL; 4.2 puan, 28 değerlendirme; ~7,2B favori. Tahmini kargo ~3 gün.
 
+
+### 8. 2'li dekoratif kitap görünümlü kutu (Home & beyaz)
+- **Link:** https://www.trendyol.com/baycazip/2-li-dekoratif-kitap-gorunumlu-kutu-home-beyaz-temali-p-690563330
+- **Marka / satıcı:** BayCazip / NAHİTA ATELİER
+- **Ürün grubu:** Dekoratif kutu · Raf / vitrin aksesuarı
+- **Kategori:** Ev ve Mobilya → Ev Dekorasyon → Dekoratif Kutu
+- **Özet:** 2'li kitap görünümlü dekoratif kutu seti, Home & beyaz temalı. Mukavva, gri-beyaz; ebat ~290x180 mm. Raf, konsol ve vitrin düzenlemesinde sahte kitap / saklama kutusu olarak kullanılır. Dekoratif Kutu kategorisinde en çok favorilenenler arasında (#4).
+- **Not:** ~191–197 TL bandı; 4.7 puan, 1280 değerlendirme; ~57,8B favori.
+
