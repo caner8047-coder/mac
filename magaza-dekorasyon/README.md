@@ -73,3 +73,20 @@ Bu klasörde mağaza dekorasyonu ile ilgili ürün/mağaza linkleri ve kısa öz
 - **Özet:** 2'li kitap görünümlü dekoratif kutu seti, Home & beyaz temalı. Mukavva, gri-beyaz; ebat ~290x180 mm. Raf, konsol ve vitrin düzenlemesinde sahte kitap / saklama kutusu olarak kullanılır. Dekoratif Kutu kategorisinde en çok favorilenenler arasında (#4).
 - **Not:** ~191–197 TL bandı; 4.7 puan, 1280 değerlendirme; ~57,8B favori.
 
+
+### 9. 5'li ahşap çerçeveli yuvarlak tablo seti (beyaz çiçekli)
+- **Link:** https://www.trendyol.com/huhuli/5-li-ahsap-cerceveli-yuvarlak-tablo-seti-beyaz-cicekli-modern-yatak-odasi-ve-salon-duvar-dekorasyonu-p-1127979272?boutiqueId=61&merchantId=378282
+- **Marka / satıcı:** HUHULİ
+- **Ürün grubu:** Duvar tablosu · Yuvarlak tablo seti
+- **Kategori:** Ev ve Mobilya → Ev Dekorasyon → Tablo
+- **Özet:** 5'li ahşap çerçeveli yuvarlak tablo seti, beyaz çiçekli modern duvar dekoru. Salon/yatak odası ve mağaza duvarı için bitki-çiçek temalı set. Materyal ahşap, renk bej, ebat 45x45, çerçeveli.
+- **Not:** ~1.395 TL; 3.0 puan (2 değerlendirme); ~949 favori.
+
+### 10. Wabi Sabi 5'li yuvarlak tablo seti (Japandi / huş çerçeve)
+- **Link:** https://www.trendyol.com/huhuli/wabi-sabi-5-li-yuvarlak-tablo-seti-dogal-hus-ahsap-cerceveli-japandi-duvar-dekoru-huhu865-p-1103247870?boutiqueId=61&merchantId=378282
+- **Marka / satıcı:** HUHULİ
+- **Ürün grubu:** Duvar tablosu · Japandi / Wabi-sabi duvar dekoru
+- **Kategori:** Ev ve Mobilya → Ev Dekorasyon → Tablo
+- **Özet:** Wabi Sabi 5'li yuvarlak tablo seti; doğal huş ahşap çerçeveli Japandi duvar dekoru (Huhu865). Minimal, doğal tonlu İskandinav-Japandi stil; mağaza feature wall ve sakin vitrin arka planı için. 45x45, 5 parça, çok renkli.
+- **Not:** ~1.256–1.395 TL bandı (Plus sepette); 4.7 puan, 16 değerlendirme; ~8,3B favori. Tablo kategorisinde en çok ziyaret edilenler arasında (#6).
+
